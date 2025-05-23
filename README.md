@@ -1,6 +1,6 @@
 # MoMo加速官网地址
 
-最新地址：[momojiasu.com](https://momojiasu.com/?love=6whuOvFu)
+最新地址：[momojiasu.com](https://dash.mmjiasu.top/#/register?code=6whuOvFu)
 
 ## MoMo加速介绍
 
